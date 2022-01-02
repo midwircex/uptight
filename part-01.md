@@ -1,10 +1,3 @@
-# Disclaimer
-These posts aren't mine, but were submitted a few years ago by another user who eventually took them down before deleting his account. Luckily the stories had been stolen from this subreddit and posted on a NSFW Tumblr blog, but the blog was deleted and the posts with it when Tumblr purged all its NSFW content. But I did some digging and was fortunately able to find all 13 of the individual posts across various obscure erotica sites, so in case those get taken down too and all accounts of the whole affair are possibly lost forever, I've decided to repost them here for all to enjoy, or re-enjoy if you were one of the many captivated by it back during it's original run. Although I can't contact the guy and ask him about it, obviously the original author had his reasons to not want these posts public anymore, but the Internet is written in ink. But I went ahead and changed the names used anyway in a minimal effort to protect privacy/dignity. This story is hot as fuck and it would be a disservice if it were abandoned and forgotten on the fourth page of Google search results, so I'm posting them here so they can be found easily and definitively. Though, the Mods will do their thing if they take issue with it and that'll be that, I guess. :/
-
-This is Part 1 of 13. I'll post the rest later if you guys are interested. Enjoy!
-
- 
-
 ## 1 - I [M] fucked my uptight roommate [F]
 
 I live with two female roommates. I don’t know either of them that well but I just graduated uni and I needed somewhere cheap to live in the city. Rebecca is a nice girl but pretty plain looking, and then there is Nicole who is basically the complete opposite. She is fucking hot, tall and with an amazing olive skin tone (she kind of reminds me of Mila Kunis, especially her eyes) but she is an uptight bitch. The type of girl who is way too anal about cleanliness, gets pissed at me for leaving the toilet seat up and can’t seem to take a joke. I don’t even really care how hot she is now because she’s a fucking nightmare to live with.
