@@ -6,17 +6,17 @@ These posts aren't mine, but were submitted a few years ago by another user who 
 
 This is Part 1 of 13. I'll post the rest later if you guys are interested. Enjoy!
 
-- [part-01.md]
-- [part-02.md]
-- [part-03.md]
-- [part-04.md]
-- [part-05.md]
-- [part-06.md]
-- [part-07.md]
-- [part-08.md]
-- [part-09.md]
-- [part-10.md]
-- [part-11.md]
-- [part-12.md]
-- [part-13.md]
-- [part-14.md]
+- [part-01.md](part 1)
+- [part-02.md](part 2)
+- [part-03.md](part 3)
+- [part-04.md](part 4)
+- [part-05.md](part 5)
+- [part-06.md](part 6)
+- [part-07.md](part 7)
+- [part-08.md](part 8)
+- [part-09.md](part 9)
+- [part-10.md](part 10)
+- [part-11.md](part 11)
+- [part-12.md](part 12)
+- [part-13.md](part 13)
+- [part-14.md](part 14)
